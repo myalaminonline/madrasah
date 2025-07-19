@@ -1,2 +1,2 @@
-# religion
-Alamin Online > Religion
+# Alamin Online > Religion
+https://alaminonline.com/religion
