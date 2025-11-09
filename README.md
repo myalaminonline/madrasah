@@ -1,2 +1,2 @@
-# Alamin Online > Religion
-https://alaminonline.com/religion
+# Alamin Online > Madrasah
+https://alaminonline.com/madrasah
